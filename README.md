@@ -15,6 +15,7 @@ ________________________________________________________________________________
 
   https://drive.google.com/drive/folders/1UpYpGZH3Zua9_jEQJLiMMJAjf1JnvXeX?usp=drive_link
 
-  # Fotos da área projetada
+  # Foto da área projetada
 
   ![Imagem do WhatsApp de 2025-05-21 à(s) 23 36 15_248b6642](https://github.com/user-attachments/assets/48cba098-954a-402e-be28-d1daf8a8b0b5)
+
